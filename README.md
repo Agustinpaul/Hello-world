@@ -1,2 +1,3 @@
 # Hello-world
-repository1
+i am Cristian Paul C. Agustin
+i love playing basketball and online games 
